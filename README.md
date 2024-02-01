@@ -1,1 +1,1 @@
-remove the current video
+book a B2 in HK
