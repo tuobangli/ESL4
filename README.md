@@ -1,1 +1,1 @@
-book a B2 in HK
+joint zoom events regularly,
