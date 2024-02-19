@@ -1,4 +1,4 @@
-https://jmlr.org/tmlr/index.html
 
-submit REDS: Mean to here. 
+
+submit REDS: Mean to PNAS. 
 
