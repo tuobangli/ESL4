@@ -1,1 +1,1 @@
-Change the name to Cover Letter.
+submit after the reply of invitations.
