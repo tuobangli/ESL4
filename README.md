@@ -1,1 +1,1 @@
-submit REDS:cenral moment to arxiv
+submit REDS:Non-asymptotic  to arxiv
