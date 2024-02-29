@@ -1,1 +1,1 @@
-submit REDS to arxiv
+submit REDS:mean to arxiv
