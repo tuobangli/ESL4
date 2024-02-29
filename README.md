@@ -1,1 +1,1 @@
-prepare for matrix dissimilarity and R package REDS
+prepare for matrix dissimilarity
