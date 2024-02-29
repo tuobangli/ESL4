@@ -1,1 +1,1 @@
-submit REDS:mean to arxiv
+submit REDS:cenral moment to arxiv
