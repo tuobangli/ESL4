@@ -1,1 +1,1 @@
-prepare for matrix dissimilarity
+submit REDS to arxiv
