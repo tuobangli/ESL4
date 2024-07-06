@@ -1,2 +1,3 @@
-submit REDS:Non-asymptotic  to arxiv
+
+go to Germeny in the mid of August.
 
