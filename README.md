@@ -1,4 +1,3 @@
 11th World Congress in Probability and Statistics
-go to Germeny in the mid of August.
+register and go to Germeny in the mid of August, no seeking presentation.
 
-2
